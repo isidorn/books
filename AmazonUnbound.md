@@ -8,3 +8,5 @@ Manje kvalitetna poglavlja su ona koja se bave Bezosovim privatnim zivotom.
 * Amazon je svesno odlucio da sjebe kvalitet Amazon pretrage kako bi stavili reklame u njega. Kroz slicnu stvar je Google prolazio pre 15 godina.
 * Amazon vodi sastanke tako sto svako pripremi kvalitetan dokument od 6 stranica i onda svi to citaju u tisini 15 minuta bez koriscenja kompjutera.
 * Amazon voli da donosi odluke na osnovu podataka i da automatizuje sve sto je moguce automatizovati.
+
+https://www.goodreads.com/book/show/56695159-amazon-unbound
