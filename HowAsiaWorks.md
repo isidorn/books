@@ -10,3 +10,5 @@ The author advices the following steps for successfull development in this order
 Only after the country has developed some of it's industries to compete on a global level should it open it's economy up to the world market.
 
 I found particularly interesting the case study of Malaysia and Philipines that were heavily investing in real estate, since no investment was being made in developing native industries that are focused on exports. This resembled Serbia to me, with it's sky high real estate prices and the feeling that every person that has some money invests it in real estate. The only quality export that Serbia currently has is IT, which might be good enough but it has no quality goverment support.
+
+https://www.goodreads.com/review/list/12540696
